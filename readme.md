@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co/Qb0cf3W/phone-screenshot.png" alt="phone-screenshot" border="0">
+<img src="https://i.ibb.co/1XJMZjf/pim.png" alt="phone-screenshot" border="0">
 
 
     • Project Manager: Ditrich TSOPFACK ESAME
